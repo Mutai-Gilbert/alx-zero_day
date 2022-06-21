@@ -1,1 +1,1 @@
-The probation period
+Start of the probation period
